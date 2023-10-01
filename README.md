@@ -24,3 +24,4 @@ Desarrollo Cultural del Lenguaje: Vygotsky sostiene que el lenguaje no es simple
 
 Estas son las ideas principales que se podrían encontrar en los capítulos 5 y 6 del libro de Lev S. Vygotsky sobre el desarrollo de los procesos psicológicos superiores. Su trabajo se centra en la interacción social, la internalización y el papel crucial del lenguaje en el desarrollo cognitivo.
 
+MARÍA ISABEL SERRANO MADRID
